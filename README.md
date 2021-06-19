@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @awef94
+- 👋 Hi, I’m Black Dominator
 - 👀 I’m interested in AIRSOFT
 - 🌱 I’m currently learning WEB PROGRAMMING
 - 💞️ I’m looking to collaborate on YANDEX
