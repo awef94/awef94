@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Black Dominator
+- 👋 Hi, I’m BLACK DOMINATOR
 - 👀 I’m interested in AIRSOFT
 - 🌱 I’m currently learning WEB PROGRAMMING
 - 💞️ I’m looking to collaborate on YANDEX
