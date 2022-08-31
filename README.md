@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @awef94
-- 👀 I’m interested in airgins
+- 👀 I’m interested in airguns and airsoft
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on Yandex
 - 📫 How to reach me telegram @awef94
